@@ -1,6 +1,6 @@
 **Veronica Ochoa**
 
-![Selfie](https://www.facebook.com/photo.php?fbid=742236115849931&set=a.106111736129042.10297.100001906485345&type=3&theater)
+![Selfie](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/10423789_742236115849931_4102103313875137958_n.jpg?oh=0cade80a6343f16bc10e34dee9e585c4&oe=5A911DC9)
 
 **Background**
 
