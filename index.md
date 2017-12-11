@@ -9,5 +9,5 @@
 
 [Bio](https://github.com/Vinny-94/Vinny1-94.github.io/blob/master/bio.md)
 
-[Topic]()
+[Topic](https://github.com/Vinny-94/Vinny1-94.github.io/blob/master/topic.md)
 
