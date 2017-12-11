@@ -8,7 +8,7 @@ Virtual Reality is a three-dimensional, computer generated environment where one
 
 ## **How does it work?
 
-In order to create the realist experience possible one must be completely be immeresed in the virtual world. With the combination of hardware, software, and sensory synchronicity, such as gloves and headsets, one can feel like they are actually in the virtual world.
+In order to create the realist experience possible one must be completely immeresed in the virtual world. With the combination of hardware, software, and sensory synchronicity, such as gloves and headsets, one can feel like they are actually in the virtual world.
 
 ## **What are the pros of a virtual reality system?
 
