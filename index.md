@@ -1,0 +1,11 @@
+# Vinny1-94.github.io
+
+
+# **THAT SAILOR/STUDENT LIFE**
+
+## Just your average 23 year old college student, who also happens to be in the Navy.
+
+![Kimono](https://www.facebook.com/profile.php?id=100001906485345)
+
+
+
