@@ -23,4 +23,4 @@ Great customer service.
 3. Catching up on the newest Netflix shows.
 4. Photography.
 
-![PP](https://www.facebook.com/photo.php?fbid=1652232804850253&set=pb.100001906485345.-2207520000.1512982893.&type=3&theater)
+![PP](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/21463304_1652232804850253_4316987617392514634_n.jpg?oh=2888f5e49399dd4d2a1b3371de406bf0&oe=5ACFB7A1)
