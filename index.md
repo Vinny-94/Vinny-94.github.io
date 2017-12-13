@@ -1,5 +1,3 @@
-# Vinny1-94.github.io
-
 
 # **THAT SAILOR/STUDENT LIFE**
 
@@ -10,4 +8,5 @@
 [Bio](https://vinny-94.github.io/bio)
 
 [Topic](https://vinny-94.github.io/topic)
+
 
