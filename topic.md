@@ -18,4 +18,4 @@ Virtual reality can provide a safe alternative to training in career fields wher
 
 **For more information please visit <https://www.vrs.org.uk/virtual-reality/what-is-virtual-reality.html>
 
-![Home](https://vinny-94.github.io)
+[Home](https://vinny-94.github.io)
