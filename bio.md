@@ -26,6 +26,4 @@ Great customer service.
 ![PP](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/21463304_1652232804850253_4316987617392514634_n.jpg?oh=2888f5e49399dd4d2a1b3371de406bf0&oe=5ACFB7A1)
 
 
-
-
-![Home](https://vinny-94.github.io)
+[Home](https://vinny-94.github.io)
