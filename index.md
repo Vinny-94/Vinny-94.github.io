@@ -7,7 +7,7 @@
 
 ![Japan](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/22780210_1705838072823059_4697417880611576990_n.jpg?oh=fb9209fd1c00b11bc9b9980e91b13fef&oe=5ACCBDBA)
 
-[Bio](https://github.com/Vinny-94/Vinny-94.github.io/blob/master/bio)
+[Bio](https://vinny-94.github.io/bio)
 
-[Topic](https://github.com/Vinny-94/Vinny-94.github.io/blob/master/topic)
+[Topic](https://vinny-94.github.io/topic)
 
